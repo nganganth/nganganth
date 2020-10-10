@@ -2,9 +2,9 @@
 ### I'm a Web Developer on my way to becoming a Full Stack Web Developer.
 
 ### 📫 Where to find me
-- [Facebook](https://www.facebook.com/huyennganth/) 😄
-- [Instagram](https://www.instagram.com/nganga1611/) 😎📷 
 - [LinkedIn](http://linkedin.com/in/nga-nguyen-99282a146) 😄💼
+- [Instagram](https://www.instagram.com/nganga1611/) 😎📷 
+- [Facebook](https://www.facebook.com/huyennganth/) 😄
 
 ### ⚡ Fun fact about me
 - I'm a big fan of nature photography. 
