@@ -3,7 +3,6 @@
 
 ### 📫 Where to find me
 - [LinkedIn](http://linkedin.com/in/nga-nguyen-99282a146) 😄💼
-- [Instagram](https://www.instagram.com/nganga1611/) 😎📷 
 
 ### ⚡ Fun fact about me
 - I'm a big fan of nature photography. 
