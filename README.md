@@ -10,7 +10,7 @@ At first, I just like to look at awesome pictures taken by photographers.
 I look at them and think about how they capture that moment and be in that moment. I was inspired by it!
 - I really love cooking. 👩‍🍳🍳
 “Cooking is a task that requires a combination of several skills – understanding and planning, attention to detail, using our memory and imagination, manual dexterity, creativity and style.” 
-- I am quite interested in psychology. 📚
+- And quite interested in psychology. 📚
 
 
 ### Languages and Tools:
