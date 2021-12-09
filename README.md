@@ -8,8 +8,8 @@
 - I'm a big fan of nature photography. 
 At first, I just like to look at awesome pictures taken by photographers.
 I look at them and think about how they capture that moment and be in that moment. I was inspired by it!
-- I really really love cooking. 👩‍🍳🍳
-“Cooking is a task that requires a combination of several skills – understanding and planning, attention to detail, using our memory and imagination, manual dexterity, creativity and style.” 	👈 Yep! Totally True!!!
+- I really love cooking. 👩‍🍳🍳
+“Cooking is a task that requires a combination of several skills – understanding and planning, attention to detail, using our memory and imagination, manual dexterity, creativity and style.” 
 - I am quite interested in psychology. 📚
 
 
